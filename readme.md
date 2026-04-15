@@ -1,4 +1,4 @@
-# 🪐🪐
+# 🪐⚽Bienvenidos a mi presentación⚽🪐
 <img width="1024" height="1024" alt="Gemini_Generated_Image_hestulhestulhest copy" src="https://github.com/user-attachments/assets/e641c974-97d9-48b6-82a2-312d997114cf" />
 
 Soy **Gonzalo Vega**, **tengo 24 años** y estoy estudiando **Ingeniería en Sistemas de Información**.
